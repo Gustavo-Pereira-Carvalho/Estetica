@@ -1,1 +1,1 @@
-# Estetica
+# Estetic
